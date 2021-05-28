@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @THEV1RTU4LGUY
+- 👀 My real name is Connor!
+- 🌱 I’m currently a roblox developer, learning to script outside of roblox.
+- 📫 reach me by using my discord: V1RTU4L#9415
